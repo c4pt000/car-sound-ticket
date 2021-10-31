@@ -6,6 +6,4 @@ by defecting gps location, and volume meter of noise in car to send the violatin
 
 like an internal ez pass window mount inside the car that can't be removed or the car won't function with the car's electrical system
 
-10-29-2021
-poor mans patent
-dhweinberg
+https://champ.gothamist.com/champ/gothamist/news/fines-noisy-illegal-mufflers-and-exhaust-systems-now-raised-1000
